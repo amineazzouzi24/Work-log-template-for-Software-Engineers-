@@ -1,1 +1,0 @@
-# Work-log-template-for-Software-Engineers-
